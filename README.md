@@ -1,0 +1,1 @@
+# Tindog-probnA-verzija
